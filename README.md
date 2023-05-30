@@ -1,5 +1,5 @@
 # Project Weird
 uwu 👉👈
 
-### Vist my OF
+### Vist my OnlyFans
 [here](https://google.com.au/)
