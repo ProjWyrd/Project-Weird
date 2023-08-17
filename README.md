@@ -1,5 +1,7 @@
 # Project Weird
 uwu 👉👈
 
-### Vist my website
+eventually i'll start this project
+
+## Vist my website
 [here](https://itxweird.github.io/)
